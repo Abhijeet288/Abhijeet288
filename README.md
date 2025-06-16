@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Django ,PHP and Dart**
 
-- 💬 Ask me about **Python, react-native ,JavaScript**
+- 💬 Ask me about **Python, react-native ,JavaScript ,SQL, Frontend **
 
 - 📫 How to reach me **sahooabhijeet500@gmail.com**
 
