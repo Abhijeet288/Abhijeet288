@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sahooabhijeet500@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16ETT5l34dyhRA7McQTwZ4Ih3Oy5OkFjF/view?usp=drive_link](https://drive.google.com/file/d/16ETT5l34dyhRA7McQTwZ4Ih3Oy5OkFjF/view?usp=drive_link)
+- 📄 Know about my experiences https://drive.google.com/file/d/1sxvRCdSi_dXXHoiwrWLOvbdXSKSLY_aK/view?usp=drive_link
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
